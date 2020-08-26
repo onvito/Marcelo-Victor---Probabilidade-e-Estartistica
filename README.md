@@ -1,1 +1,1 @@
-# Marcelo-Victor---Probabilidade-e-Estartistica
+# Marcelo-Victor---Probabilidade-e-Estatistica
